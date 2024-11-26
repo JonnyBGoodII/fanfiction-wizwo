@@ -1,0 +1,32 @@
+# Schmuckvolle Erinnerung
+
+Mitternachtsblau war die Farbe, die Rowena sich auserwählt hatte. Das bodenlange Kleid mit dem Schlitz an der rechten Seite, durch den es vor allem beim Tanze noch einmal interessanter wurde, sollte mitternachtsblau sein. Eine vollkommene Farbe, die im Kontrast zu ihrer hellen Hautfarbe besonders gut wirken würde.
+Die Haare würde sie in einer strengen Flechtfrisur tragen, passend zum eng tailierten Schnitt des Kleides.
+
+Filigrane und leichte Lederschuhe würde sie noch brauchen; dafür musste sie wohl Godric fragen. Er war hilfsbereit und konnte viele Dinge ausgezeichnet herstellen, wenn man es ihm nur gut genug beschrieb. Und im Nachhinein konnte sie selbst ja auch noch kleine Verbesserungen vornehmen. Das musste allerdings warten bis das Kleid fertig war, denn es musste sich die exakt gleiche Farbe in den Schuhe wiederfinden. Das würde das Bild abrunden.
+
+Schmuck durfte nicht fehlen, doch fand Rowena, dass vor allem Frauen von hohem Stand gerne zu viel des Guten benutzten. Wohl um zu zeigen, wie viel man hatte, während man den eigentlichen Zweck vernachlässigte, nämlich das eigene Erscheinen mit Glanz oder handwerklichem Geschick mehr Aufregung und Tiefe zu verleihen. Stattdessen wirkte es bei manchen Bällen so, als wäre es das erklärte Ziel mancher Damen, möglichst viel Wohlstand am Körper unterzubringen ohne tatsächlich Geld dabei zu haben.
+
+Ohne Schmuck allerdings wirkte man im besten Falle leger, befand Rowena. Der Spiegel in ihrem Zimmer zeigte sie gerade nur in dem Entwurf des Kleides, dass sie gerade versuchte zu fertigen. Die Haare nur unachtsam über die Schultern geworfen und sonst kaum angerichtet, lies Rowena den Blick vor allem auf dem Kleid und dessen Schnitt. Schmuck würde sofort von diesem rein zweckmäßigem Aussehen ablenken und für mehr Glanz sorgen.
+
+Das Diadem würde natürlich sehr gut passen, mit dem eingesetzten Saphir. Der Blick im Spiegel wurde ernster und starrer. Es war, als legte sich ein feiner Schleier über ihr Gesicht. Auf dem Fenstersims stand ein Bild einer jungen, sehr gutaussehenden Frau, die fröhlich in das Zimmer winkte und der Frau darin sehr ähnlich sah. Wo sie sich wohl gerade herumtrieb?
+
+Bei all den Kleidern, und dem Schmuck der Welt, das wertvollste darin waren doch immer die Menschen, die einem am wichtigsten sind. So klar und einfach sich das anhörte, so oft mussten es Menschen wohl einzeln wieder lernen.
+
+Vor vielen Jahren, als sie ihre magischen Fähigkeiten noch deutlich unpräziser einsetzte, und selbst fast noch nicht erwachsen war, wurde sie von ihren so genannten Freundinnen oftmals geärgert. Sie sei zu unentspannt und habe zu wenig Romantik im Sinn und überhaupt, was sollte das grimmige Gesicht. Sie trieben es so weit, dass sie zur alten Jungfer ernannten und ihr prophezeiten, eines Tages das Lachen zu verlernen.
+
+Eines Tages, die Freundinnen hatten gerade gar nichts anderes zu tun, als ihre Zukunft in dunklem Grau zu malen, war es zu viel geworden. Rowena putzte sich heraus und suchte nach einem Fest, das man heute noch feiern konnte. Allerdings war schon später Herbst und sie musste zwei Stunden auf dem Besen verbringen, um ein Fest von mindestens fünzig Männern zu finden. Einmal angekommen trank, tanzte, und lachte Rowenna sehr viel. Es war ein toller Abend, den sie auch nicht alleine beendete.
+
+Am nächsten Morgen wusste sie den Namen des abendlichen Chameurs nicht mehr, und der Kopf half auch nicht gerade damit, jeden Pulsschlag noch einmal mit einem dumpfen Dröhnen zu wiederholen. Rowenna verfluchte ihre Übertreibungvom Vortag und trat den Heimweg an. Zwar wusste sie ihn nicht, aber mit einigen Umwegen, kam sie doch zuhause an und verkroch sich im Bett.
+
+Aus diesem Abenteuer entstand ihre Tochter. Zwar wurden die wildesten Geschichten erfunden, wie Rowenna, die zuvor noch nie mit einem Mann gesehen worden war, ein Kind bekommen haben sollte, doch war ihr das von da an egal. Sie hatte es sich einmal einreden lassen etwas zu tun, was sie nicht tun wollte. Sie würde es nicht wieder tun. Auch wenn ihre Tochter von nun an das Schützenswerteste in ihrem Leben war.
+
+Allerdings kamen mit den drei wahren Freunden, Helga, Salazar, und Godric auch viele neue Idee und Aufgaben, die sich faszinierten und vollumfänglich in ihren Bann zogen. Darüber hatte sie wohl etwas die Beziehung zu ihrer Tochte vernachlässigt. ES kam immer wieder zu keineren Streitigkeiten zwischen ihnen. Nichts ernstes, dachte sich Rowenna. Doch ihre Verbindung wurde anscheinend immer schlechter, ihre Tochter entfernte sich von ihr und zog sich zurück.
+
+Wenn junge Damen einmal ein Alter erreifchten, musste sie auch manche Dinge alleine erleben. Rowenna selbst hatte sich selbst sehr viele Dinge beigebracht ohne die Hilfe von älteren abzufragen. Doch einmal nahm ihre Tochter das Diadem mit. Dieses Diadem war Rowenna extrem wichtig, fast so wichtig wie ihre Tochter. Vielleicht hatte sie es manchmal sogar für wichtiger gehalten? Rückblickend lies sich das nicht so leicht sagen.
+
+Jedenfalls kam die Tochter erst nach mehreren Tagen und ohne das Diadem zurück. Rowenna hatte nicht mehr schlafe können aus Sorge um die beiden. Und als sie dann vor ihr stand, in einem unvorzeigbaren Zustand, war sie zuerst voller Erleichterung um den Hals gefallen. Doch danach hatte sich die Tochter eine Standpauke verdient, die man wohl noch in einem guten Umkreis hatte hören können.
+
+Die Situation eskalierte, die aufgestauten Konflikte der letzten Zeit brachen sich Bahn. Beleidigungen, die niemand wirklich so meinte, aber nicht ungesagt gemacht werden konnten, wurden geschrien. Vorwürfe, dass sich Rowenna zu sehr mit den drei Freunden beschäftige, was das überhaupt werden solle. Und natürlich das Diadem, das ihre Tochte gestohlen hatte und nicht wieder bringen konnte, weil sie es verkauft hatte. Das wusste Rowenna nicht, aber die Tochter brauchte immer Geld um sich irgendetwas zu kaufen oder bei Feiern ordentlich mit ihrem Freundinnen mithalten zu können. Sie musste sich hier wohl von ihrer Mutter distanzieren.
+
+Oder sie ersetzen, kam Rowenna in den Sinn, als sie so darüber nachdachte. Jedenfalls war ihre Tochter wutschnaubend abgereist. Sie war bis heute nicht wieder gekommen, hatte auf keien Kontaktversuch reagiert. Das hatte Rowenna das Herz gebrochen. Seit dem war sie nicht mehr die selbe, war noch unnahbarer geworden. Hatte sich zurückgezogen aus Angst vor einem Freisetzen der Gefühle.
